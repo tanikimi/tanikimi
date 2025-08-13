@@ -1,4 +1,4 @@
-# Hi there 👋 I'm Kiminori(tanikimi)!
+# Hi there 👋
 
 ## Homepage
 
